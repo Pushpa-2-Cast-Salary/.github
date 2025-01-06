@@ -20,11 +20,11 @@ For Allu Arjun and Rashmika Mandanna Salary Click Here: https://www.showbizgalor
 
 ## Sreeleela's Special Appearance
 
-Adding to the film's allure is **Sreeleela**, who features in a special dance number. She has reportedly been paid **₹2 crore** for this appearance, underscoring the film's commitment to delivering high-quality entertainment.
+Actor **Sreeleela**, who features in a special dance number. She has reportedly been paid **₹2 crore** for this appearance, underscoring the film's commitment to delivering high-quality entertainment.
 
 ## Comparative Analysis with Industry Peers
 
-While Allu Arjun's ₹300 crore paycheck is monumental, it's noteworthy that other Indian actors have also commanded substantial fees. For instance, **Shah Rukh Khan** reportedly earned over ₹350 crore for his role in "Pathaan," primarily through a profit-sharing agreement.
+Allu Arjun's ₹300 crore paycheck is monumental, it's noteworthy that other Indian actors have also commanded substantial fees. For instance, **Shah Rukh Khan** reportedly earned over ₹350 crore for his role in "Pathaan," primarily through a profit-sharing agreement.
 
 ## Conclusion
 
