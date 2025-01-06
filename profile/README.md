@@ -24,7 +24,7 @@ Actor **Sreeleela**, who features in a special dance number. She has reportedly 
 
 ## Comparative Analysis with Industry Peers
 
-Allu Arjun's ₹300 crore paycheck is monumental, it's noteworthy that other Indian actors have also commanded substantial fees. For instance, **Shah Rukh Khan** reportedly earned over ₹350 crore for his role in "Pathaan," primarily through a profit-sharing agreement.
+Allu Arjun's paycheck is monumental, it's noteworthy that other Indian actors have also commanded substantial fees. For instance, **Shah Rukh Khan** reportedly earned over ₹350 crore for his role in "Pathaan," primarily through a profit-sharing agreement.
 
 ## Conclusion
 
