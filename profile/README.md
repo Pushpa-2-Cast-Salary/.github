@@ -18,10 +18,6 @@ For Allu Arjun and Rashmika Mandanna Salary Click Here: https://www.showbizgalor
 
 **Fahadh Faasil**, who portrays SP Bhanwar Singh Shekhawat, is said to have charged **₹8 crore** for his role in the sequel. His compelling performance in the first installment has significantly contributed to his increased remuneration.
 
-## Sreeleela's Special Appearance
-
-Actor **Sreeleela**, who features in a special dance number. She has reportedly been paid **₹2 crore** for this appearance, underscoring the film's commitment to delivering high-quality entertainment.
-
 ## Comparative Analysis with Industry Peers
 
 Allu Arjun's paycheck is monumental, it's noteworthy that other Indian actors have also commanded substantial fees. For instance, **Shah Rukh Khan** reportedly earned over ₹350 crore for his role in "Pathaan," primarily through a profit-sharing agreement.
