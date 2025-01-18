@@ -20,6 +20,6 @@ For Allu Arjun and Rashmika Mandanna Salary Click Here: https://www.showbizgalor
 
 ## Comparative Analysis with Industry Peers
 
-Allu Arjun's paycheck is monumental, it's noteworthy that other Indian actors have also commanded substantial fees. For instance, **Shah Rukh Khan** reportedly earned over ₹350 crore for his role in "Pathaan," primarily through a profit-sharing agreement.
+Allu Arjun's paycheck is monumental, it's noteworthy that other Indian actors have also commanded substantial fees. For instance, **Shah Rukh Khan** reportedly earned over ₹350 crore for his role in "Pathaan," primarily.
 
 Download Pushpa 2 movie
